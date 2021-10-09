@@ -1,7 +1,7 @@
 Hello!
 
-Your wondering, what does the scripts do? Well first off this is for roblox. Its for exploiters that have disadvantages. Basically its cheating.
+Your wondering, what does the scripts do? Well first off this is for roblox. Its for exploiters that play roblox (which is a childs game) and they have disadvantages. Basically its cheating.
 
 If your a exploit then here is your game: https://www.roblox.com/games/5852812686/SQUID-EGG-Candy-Clicking-Simulator
 
-See you today. :)
+See you today :)
